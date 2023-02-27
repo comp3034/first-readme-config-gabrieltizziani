@@ -1,4 +1,4 @@
-# Gabriel de Melo Tizzini  
+# Gabriel de Melo Tizziani
 
 
 -O que eu espero do curso? 
